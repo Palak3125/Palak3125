@@ -1,5 +1,5 @@
 # 💫 About Me:
-## Hi, I'm Palak Dwivedi✨<br> 🧠 Electronics And Communication Engineering student at Indian Institiute of Information Technology
+## Hi, I'm Palak Dwivedi✨<br> 🧠 Electronics And Communication Engineering student at Indian Institiute of Information Technology,Surat
 
 
 ## 🌐 Socials:
